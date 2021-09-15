@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Kirpicy7
+- 👀 I’m interested in coding and web development
+- 🌱 I’m currently learning web development
+- 💞️ I’m looking to collaborate on web development
+- 📫 How to reach me email: stefan.luca7777@gmail.com or discord Kirpicy#1868 
